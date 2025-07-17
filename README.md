@@ -1,1 +1,1 @@
-# International-Regulatory-Cooperation---scientific-mapping
+# International-Regulatory-Cooperation-scientific-mapping
